@@ -1,6 +1,9 @@
 # travel_USA
 USA Group Travel Projects
-24下午：
+## Dec 24-26 2019, New Orleans
+
+### Dec 24 2019
+#### PM:
 城市公园（city park）
 Free
 1854年建；青苔架篷，世界上规模最大的橡树林
@@ -11,12 +14,13 @@ Open 10 am-3 pm on Christmas Eve (December 24).
 closed on Christmas Day (December 25).
 $15.00 adults | | Admission to the Besthoff Sculpture Garden is always free
 Parking free
-
-24晚上
+#### Evening
 篝火
 https://www.neworleans.com/event/christmas-eve-bonfires-on-the-levee/3232/
 
-25日上午
+### Dec 25 2019
+#### AM
+
 法国区（French Quarter）
 Jackson square
 8:00-18:00
@@ -33,10 +37,11 @@ Any time
 
 杜兰大学Tulane University undergraduate 
 
-25日下午
+#### PM
 密西西爵士乐蒸汽观光船或者沼泽探险
 
-26日上午
+### Dec 25 2019
+#### AM
 法国区（French Quarter）
 美国国家二战博物馆（The National WWII Museum）
 Closed Mardi Gras Day, Thanksgiving Day, Christmas Eve, and Christmas Day.
@@ -44,7 +49,7 @@ Closed Mardi Gras Day, Thanksgiving Day, Christmas Eve, and Christmas Day.
 Pariking：$10/3hours
 Ticket:$28.5/person
 
-26日下午
+#### PM
 橡树庄园：oak alley plantation
 12.25不开
 $25+tax /人
