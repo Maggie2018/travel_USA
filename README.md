@@ -46,7 +46,8 @@ USA Group Travel Projects
 #### 法国区（French Quarter）casino
 - Address: 8 Canal St, New Orleans, LA 70130
 - Open hour: maybe 16:00-21:00
-#### Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Keyes House, Royal Pharmacy,被列入国家历史地的小酒馆Lafitte's Blacksmith,邮局，以玉米铁艺栅栏知名的Cornstalk Hotel, St Anthony's Garden, Pirate's Alley,以锻铁阳台知名的Labramche Building, Faulkner House 书店，Avart-Peretti宅邸，LeMonnier大厦，颓废的Preservation Hall (听爵士乐的最佳地点),画廊Court of Two Lions,Historic New Orleans Collection,State Supreme Court Building
+#### 其他
+Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Keyes House, Royal Pharmacy,被列入国家历史地的小酒馆Lafitte's Blacksmith,邮局，以玉米铁艺栅栏知名的Cornstalk Hotel, St Anthony's Garden, Pirate's Alley,以锻铁阳台知名的Labramche Building, Faulkner House 书店，Avart-Peretti宅邸，LeMonnier大厦，颓废的Preservation Hall (听爵士乐的最佳地点),画廊Court of Two Lions,Historic New Orleans Collection,State Supreme Court Building
 
 #### 花园区 gardon district
 - 沿Charles 路坐老式电车，从Washington路下车转到Prytania路，一直走到有罗伯特.LEE雕塑的大转盘看，有希腊复兴式，哥特式，新奥尔良特色的Lafayette Cemetery No.1 公墓，治安不好，特别是墓地周围
