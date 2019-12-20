@@ -4,21 +4,21 @@ USA Group Travel Projects
 ---
 ## Dec 24-26 2019, New Orleans
 
-### Dec 24 2019
-#### PM:
-- 城市公园（city park）
-Address:
-ticket:Free
-Note:1854年建；青苔架篷，世界上规模最大的橡树林
+### Dec 24 2019 PM
+#### 城市公园（city park）
+- Address:
+- ticket:Free
+- Note:1854年建；青苔架篷，世界上规模最大的橡树林
 
-- 新奥尔良艺术博物馆（New Orleans Museum of Art, NOMA）
-大师作品：莫奈，毕加索，马提斯
-Open 10 am-3 pm on Christmas Eve (December 24).
+#### 新奥尔良艺术博物馆（New Orleans Museum of Art, NOMA）
+- Note:大师作品：莫奈，毕加索，马提斯
+- Ad:1C
+- Open 10 am-3 pm on Christmas Eve (December 24).
 closed on Christmas Day (December 25).
-$15.00 adults | | Admission to the Besthoff Sculpture Garden is always free
-Parking free
-#### Evening
-- 篝火
+-$15.00 adults | | Admission to the Besthoff Sculpture Garden is always free
+- Parking free
+### Dec 24 2019 PMEvening
+#### 篝火
 https://www.neworleans.com/event/christmas-eve-bonfires-on-the-levee/3232/
 
 ---
