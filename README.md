@@ -7,8 +7,9 @@ USA Group Travel Projects
 ### Dec 24 2019
 #### PM:
 - 城市公园（city park）
-Free
-1854年建；青苔架篷，世界上规模最大的橡树林
+Address:
+ticket:Free
+Note:1854年建；青苔架篷，世界上规模最大的橡树林
 
 - 新奥尔良艺术博物馆（New Orleans Museum of Art, NOMA）
 大师作品：莫奈，毕加索，马提斯
