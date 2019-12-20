@@ -16,6 +16,9 @@ Open 10 am-3 pm on Christmas Eve (December 24).
 closed on Christmas Day (December 25).
 $15.00 adults | | Admission to the Besthoff Sculpture Garden is always free
 Parking free
+
+- Food: 
+晚餐：
 #### Evening
 - 篝火
 https://www.neworleans.com/event/christmas-eve-bonfires-on-the-levee/3232/
