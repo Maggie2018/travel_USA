@@ -60,31 +60,39 @@ USA Group Travel Projects
 
 5. 其他
 Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Keyes House, Royal Pharmacy,被列入国家历史地的小酒馆Lafitte's Blacksmith,邮局，以玉米铁艺栅栏知名的Cornstalk Hotel, St Anthony's Garden, Pirate's Alley,以锻铁阳台知名的Labramche Building, Faulkner House 书店，Avart-Peretti宅邸，LeMonnier大厦，颓废的Preservation Hall (听爵士乐的最佳地点),画廊Court of Two Lions,Historic New Orleans Collection,State Supreme Court Building
+6. Tips:
+- day pass($3/人）可以坐电车和公交，上车就能向司机购买．
 
 ##### 美食 Food
 1. *法餐*Cafè Du Monde(Brunch, 24号下午或者２６号早上必吃，紧邻French Market）
 - Open hour: (24th) Midnight-18:00 ; (25th) Closed；（26th)5:00-Midnight
 - Must try: Beignet, Coffee
 - Average $/person: $6 (Cash Only)
-- Adress: 800 Decatur St, New Orleans, LA 70116
+- Address: 800 Decatur St, New Orleans, LA 70116
 2. *法餐*Li'l Dizzy's Cafe
 - Open hour: (24th) 7:00-14:00(may differ); (25th) 7:00-14:00(may differ)；（26th)7:00-14:00
 - Must try: Gumbo, 
 - Average $/person: $7
-- Adress: 1500 Esplanade Ave, New Orleans, LA 70116
+- Address: 1500 Esplanade Ave, New Orleans, LA 70116
 - Tips: 中午11点之后会开放自助
 3. *海鲜－生蚝*Acme Oyster House
 - Open hour: (24th) 10:30-22:00(may differ); (25th) 10:30-22:00(may differ)；（26th)10:30-22:00
 - Must try: Oyster(不吃生的可以点chargrilled), 
 - Average $/person: $30
-- Adress: 724 Iberville St, New Orleans, LA 70130
+- Address: 724 Iberville St, New Orleans, LA 70130
 - Tips: 晚上会排队，所以下午五点左右到可以避免排队．
 4. *鳄鱼肉*New Orleans Hamburger & Seafood
 - Open hour: (24th) 6:00-22:00(may differ); (25th) 6:00-22:00(may differ)；（26th)6:00-22:00
 - Must try: Beignet(chocolate), Alligator poppers(炸鳄鱼丸子）, Crawfish 
 - Average $/person: $20
-- Adress: 4141 St Charles, New Orleans, LA 70115
+- Address: 4141 St Charles, New Orleans, LA 70115
 - Tips: 巧克力法式甜甜圈和鳄鱼丸子比较有特色，分量大，尤其是海鲜拼盘(Seafood platter, $25.99)．
+5. *海鲜－小龙虾*Broadview Seafood
+- Open hour: (24th) 10:30-19:00(may differ); (25th) 10:30-19:00(may differ)；（26th)10:30-19:00
+- Must try: Crawfish 
+- Average $/person: $15
+- Address: 1468 N Broad St, New Orleans, LA 70115
+- Tips: 加工好的小龙虾、虾、蟹、火鸡脖子、猪脚等，味道微辣，小龙虾里还有配菜．
 
 
 
@@ -126,16 +134,22 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
              Holidays observed areChristmas and Christmas Day
 - Intro:如果只想参观一间博物馆，建议参观法国区的Historic New Orleans Collection，它是一栋老建筑，内藏美法交易的路易斯安娜购买原始凭证和早期地图，但不是时常都能看到，只有跟专门的tour到二楼展厅观看。
 #### 法国区（French Quarter）美国国家二战博物馆（The National WWII Museum）
-- open hour: Time: 9：00-5：00
+- Open hour: Time: 9：00-5：00
              Closed Mardi Gras Day, Thanksgiving Day, Christmas Eve, and Christmas Day.
+- Address:945 Magazine St, New Orleans, LA 70130
 - Pariking：$10/3hours
 - Ticket:$28.5/person
+- Tips: 分了三个馆，分别介绍了纳粹的历史、东京之路和柏林之路．在Road To Tokyo里面有一个影片介绍南京大屠杀.
 
 ### Dec 26 2019 PM
-#### 橡树庄园：oak alley plantation
-- 12.25不开
+#### 橡树庄园：Oak Ally Plantation
+- Address:3645 LA-18, Vacherie, LA 70090
+- Open hour: 9:00-17:00, 12.25不开
 - ticket:$25+tax /人
 - open hour: 9：00am -5:00 pm（需要2 hours）
 - parking：11-13$
 - webs：https://www.oakalleyplantation.org/about
 https://www.bangli.us/post/154586
+- Tips: 买了门票后会有个tour,有导游会跟你讲解这个庄园和房子的历史,介绍每一任的主人.除了这栋房子,庄园里还有当时黑奴住的房子的模型.能很好地了解当时南方的种植园文化．
+
+
