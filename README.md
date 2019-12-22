@@ -4,6 +4,7 @@ USA Group Travel Projects
 ---
 ## Dec 24-26 2019, New Orleans
 #### Airbnb: 
+- Check in: after 3PM, Dec 24th; Leave: before 11AM, Dec 26th.  
 - Address: 4321 Baudin St, New Orleans, LA 70119
 - Contact:Truedell 985-285-6467
 - Tips: Arrive anytime after 3PM; Call Truedell 30min before arrival, meet at the house with keys; Feel free to contact Truedell if need any help; Truedell can provide trip suggestions. 
@@ -61,11 +62,23 @@ USA Group Travel Projects
 Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Keyes House, Royal Pharmacy,被列入国家历史地的小酒馆Lafitte's Blacksmith,邮局，以玉米铁艺栅栏知名的Cornstalk Hotel, St Anthony's Garden, Pirate's Alley,以锻铁阳台知名的Labramche Building, Faulkner House 书店，Avart-Peretti宅邸，LeMonnier大厦，颓废的Preservation Hall (听爵士乐的最佳地点),画廊Court of Two Lions,Historic New Orleans Collection,State Supreme Court Building
 
 ##### 美食 Food
-1. Cafè Du Monde(24号下午或者２６号早上必吃，紧邻French Market）
+1. *法餐*Cafè Du Monde(Brunch, 24号下午或者２６号早上必吃，紧邻French Market）
 - Open hour: (24th) Midnight-18:00 ; (25th) Closed；（26th)5:00-Midnight
 - Must try: Beignet, Coffee
-- Average $/person: $6
-- Adress: 800 Decatur St, New Orlearns, LA 70116
+- Average $/person: $6 (Cash Only)
+- Adress: 800 Decatur St, New Orleans, LA 70116
+2. *法餐*Li'l Dizzy's Cafe
+- Open hour: (24th) 7:00-14:00(may differ); (25th) 7:00-14:00(may differ)；（26th)7:00-14:00
+- Must try: Gumbo, 
+- Average $/person: $7
+- Adress: 1500 Esplanade Ave, New Orleans, LA 70116
+- Tips: 中午11点之后会开放自助
+
+
+3. 美食术语
+- Beignet: 法式甜甜圈，油炸面包圈
+- Gumbo:　秋葵汤饭
+- Jambalaya: 什锦饭（用米饭、海鲜、鸡肉等加香料制作而成）
 
 
 
