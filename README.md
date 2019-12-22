@@ -79,16 +79,31 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 - Average $/person: $30
 - Adress: 724 Iberville St, New Orleans, LA 70130
 - Tips: 晚上会排队，所以下午五点左右到可以避免排队．
+4. *鳄鱼肉*New Orleans Hamburger & Seafood
+- Open hour: (24th) 6:00-22:00(may differ); (25th) 6:00-22:00(may differ)；（26th)6:00-22:00
+- Must try: Beignet(chocolate), Alligator poppers(炸鳄鱼丸子）, Crawfish 
+- Average $/person: $20
+- Adress: 4141 St Charles, New Orleans, LA 70115
+- Tips: 巧克力法式甜甜圈和鳄鱼丸子比较有特色，分量大，尤其是海鲜拼盘(Seafood platter, $25.99)．
+
+
 
 
 
 3. 美食术语
+- Alligator: 短吻鳄（产于美国及中国）
 - Beignet: 法式甜甜圈，油炸面包圈
+- Boudin: 猪血香肠
+- Crawfish: 小龙虾，淡水鳌虾
+- Catfish: 鲶鱼
+- Cajun:法裔路易斯安那州人，讲旧式法语.
+- Creole: 克里奥尔人，指首批定居在美国南部的法国人和西班牙人后裔．
 - Gumbo:　秋葵汤饭
 - Jambalaya: 什锦饭（用米饭、海鲜、鸡肉等加香料制作而成）
 - Po-boys(or poor boy): a traditional submarine sandwich from LA. It almost always consists of meat, usually toasted beef, or fried seafood. The meat is served on baguette-like New Orleans French bread, known for its crisp crust and fluffy center. 
-- Cajun:法裔路易斯安那州人，讲旧式法语.
-- Creole: 克里奥尔人，指首批定居在美国南部的法国人和西班牙人后裔．
+- Queso: Spanish for "cheese"
+- Tortilla: 墨西哥玉米薄饼
+
 
 
 
