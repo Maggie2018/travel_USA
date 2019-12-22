@@ -99,7 +99,13 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 - Average $/person: $20
 - Address: 4141 St Charles, New Orleans, LA 70115
 - Tips: 巧克力法式甜甜圈和鳄鱼丸子比较有特色，分量大，尤其是海鲜拼盘(Seafood platter, $25.99)．
-7. *海鲜－小龙虾*Broadview Seafood
+7. *海鲜－Oyster/鳄鱼肉/海龟汤*Desire Oyster Bar
+- Open hour: (24th) 6:30-22:00(may differ); (25th) 6:30-22:00(may differ)；（26th)6:30-22:00
+- Must try: Grilled Oysters, Crab Cakes, Crispy Fried Alligator 
+- Average $/person: $20
+- Address: 300 Bourbon St, New Orleans, LA 70130
+- Tips: 巧克力法式甜甜圈和鳄鱼丸子比较有特色，分量大，尤其是海鲜拼盘(Seafood platter, $25.99)．
+8. *海鲜－小龙虾*Broadview Seafood
 - Open hour: (24th) 10:30-19:00(may differ); (25th) 10:30-19:00(may differ)；（26th)10:30-19:00
 - Must try: Crawfish 
 - Average $/person: $15
@@ -111,6 +117,7 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 
 
 3. 美食术语
+＂真正被大多数美国人所接受的新奥尔良食物则是以劲辣🌶🌶🌶 闻名，然后通过洋葱、辣椒和芹菜组成三位一体，再配上大量的香料就形成了基本味型。＂
 - Alligator: 短吻鳄（产于美国及中国）
 - Beignet: 法式甜甜圈，油炸面包圈
 - Boudin: 猪血香肠
@@ -118,10 +125,12 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 - Catfish: 鲶鱼
 - Cajun:法裔路易斯安那州人，讲旧式法语.
 - Creole: 克里奥尔人，指首批定居在美国南部的法国人和西班牙人后裔．
+- Etouffee: 海鲜烩饭，一般是Shrimp Etouffee
 - Gumbo:　秋葵汤饭
 - Jambalaya: 什锦饭（用米饭、海鲜、鸡肉等加香料制作而成）
 - Po-boys(or poor boy): a traditional submarine sandwich from LA. It almost always consists of meat, usually toasted beef, or fried seafood. The meat is served on baguette-like New Orleans French bread, known for its crisp crust and fluffy center. 
 - Queso: Spanish for "cheese"
+- Swamp Pop(strawberry): LA盛产草莓，所以饮料点Swamp Pop草莓味的最好！＂Sweet Ponchatoula Strawberries are the official fruit of Louisiana.＂
 - Tortilla: 墨西哥玉米薄饼
 
 
