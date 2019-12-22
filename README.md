@@ -3,8 +3,11 @@
 USA Group Travel Projects
 ---
 ## Dec 24-26 2019, New Orleans
+#### Airbnb: 
+- Address: 4321 Baudin St, New Orleans, LA 70119
+- Contact:Truedell 985-285-6467
+- Tips: Arrive anytime after 3PM; Call Truedell 30min before arrival, meet at the house with keys; Feel free to contact Truedell if need any help; Truedell can provide trip suggestions. 
 
-### best 12:00 pm to start
 ### Dec 24 2019 PM
 #### 新奥尔良艺术博物馆（New Orleans Museum of Art, NOMA）
 - Address: 1 Collins Diboll Cir, New Orleans, LA 70124
