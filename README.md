@@ -35,6 +35,7 @@ USA Group Travel Projects
 ---
 ### Dec 25 2019 AM
 #### 法国区（French Quarter）
+##### 景点　Sightseeing
 1. Jackson square
 - Open hour:8:00-18:00
 - Ticket:Free
@@ -47,7 +48,7 @@ USA Group Travel Projects
 
 3. French Market
 - Open hour:8:00-17:00 (may differ)
--Address: 700-1010 Decatur St, New Orlean, LA 70116
+-Address: 700-1010 Decatur St, New Orleans, LA 70116
 
 4. Casino
 - Address: 8 Canal St, New Orleans, LA 70130
@@ -55,6 +56,16 @@ USA Group Travel Projects
 
 5. 其他
 Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Keyes House, Royal Pharmacy,被列入国家历史地的小酒馆Lafitte's Blacksmith,邮局，以玉米铁艺栅栏知名的Cornstalk Hotel, St Anthony's Garden, Pirate's Alley,以锻铁阳台知名的Labramche Building, Faulkner House 书店，Avart-Peretti宅邸，LeMonnier大厦，颓废的Preservation Hall (听爵士乐的最佳地点),画廊Court of Two Lions,Historic New Orleans Collection,State Supreme Court Building
+
+##### 美食 Food
+1. Cafè Du Monde(24号下午或者２６号早上必吃，紧邻French Market）
+- Open hour: (24th) Midnight-18:00 ; (25th) Closed；（26th)5:00-Midnight
+- Must try: Beignet, Coffee
+- Average $/person: $6
+- Adress: 800 Decatur St, New Orlearns, LA 70116
+
+
+
 
 #### 花园区 gardon district
 - 沿Charles 路坐老式电车，从Washington路下车转到Prytania路，一直走到有罗伯特.LEE雕塑的大转盘看，有希腊复兴式，哥特式，新奥尔良特色的Lafayette Cemetery No.1 公墓，治安不好，特别是墓地周围
