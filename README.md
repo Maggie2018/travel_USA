@@ -81,13 +81,25 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 - Average $/person: $30
 - Address: 724 Iberville St, New Orleans, LA 70130
 - Tips: 晚上会排队，所以下午五点左右到可以避免排队．
-4. *鳄鱼肉*New Orleans Hamburger & Seafood
+4. *海鲜－生蚝*Drago's - Hilton Riverside
+- Open hour: (24th) 11:00-22:00(may differ); (25th) 11:00-22:00(may differ)；（26th)11:00-22:00
+- Must try: Oyster 
+- Average $/person: $30
+- Address: 2 Poydras St, New Orleans, LA 70112
+- Tips: 据说此处生蚝比Acme的更好，是NOLA第一．
+5.*海鲜－小龙虾*Cajun Seafood
+- Open hour: (24th) 10:30-20:30(may differ); (25th) 10:30-20:30(may differ)；（26th)10:30-20:30
+- Must try: 小龙虾，蟹腿，猪蹄，火鸡脖子 
+- Average $/person: $15
+- Address: 1479 N Claiborne Ave, New Orleans, LA 70116
+- Tips: 很受欢迎的海鲜连锁店，主打小龙虾、蟹腿等． 
+6. *鳄鱼肉*New Orleans Hamburger & Seafood
 - Open hour: (24th) 6:00-22:00(may differ); (25th) 6:00-22:00(may differ)；（26th)6:00-22:00
 - Must try: Beignet(chocolate), Alligator poppers(炸鳄鱼丸子）, Crawfish 
 - Average $/person: $20
 - Address: 4141 St Charles, New Orleans, LA 70115
 - Tips: 巧克力法式甜甜圈和鳄鱼丸子比较有特色，分量大，尤其是海鲜拼盘(Seafood platter, $25.99)．
-5. *海鲜－小龙虾*Broadview Seafood
+7. *海鲜－小龙虾*Broadview Seafood
 - Open hour: (24th) 10:30-19:00(may differ); (25th) 10:30-19:00(may differ)；（26th)10:30-19:00
 - Must try: Crawfish 
 - Average $/person: $15
