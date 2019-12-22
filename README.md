@@ -116,18 +116,20 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 
 
 
-3. 美食术语
+#### 美食术语
 ＂真正被大多数美国人所接受的新奥尔良食物则是以劲辣🌶🌶🌶 闻名，然后通过洋葱、辣椒和芹菜组成三位一体，再配上大量的香料就形成了基本味型。＂
 - Alligator: 短吻鳄（产于美国及中国）
 - Beignet: 法式甜甜圈，油炸面包圈
 - Boudin: 猪血香肠
-- Crawfish: 小龙虾，淡水鳌虾
+- Crawfish: 小龙虾，淡水鳌虾．Cajun Food中混入了越南风味，劲辣与香料完美结合，无论是哪一个民族的人，都会觉得特别顺口，特别是让人奉为经典的Sha-Bang酱，无论是配小虾，大虾还是龙虾，你都会想吃完之后，再来舔舔手指头上的酱汁。
 - Catfish: 鲶鱼
-- Cajun:法裔路易斯安那州人，讲旧式法语.
-- Creole: 克里奥尔人，指首批定居在美国南部的法国人和西班牙人后裔．
-- Etouffee: 海鲜烩饭，一般是Shrimp Etouffee
-- Gumbo:　秋葵汤饭
-- Jambalaya: 什锦饭（用米饭、海鲜、鸡肉等加香料制作而成）
+- Cajun:法裔路易斯安那州人，讲旧式法语.“Acadian” 最早是指居住在加拿大东部的魁北克省和沿海诸小省，说法语的新法国”移民后代”们。但是18世纪的一场战争，让一大批法裔辗转来到本来就以法国人聚居出名的美国路易斯安那州定居。这批移民的祖先大多来自法国乡村，所以在饮食上保留了法国乡村风味，他们的食物在用料和操作上都比较简单实惠，滋味却不俗，这种美食后来就被叫做了Cajun Food。最早曾是带着些许嘲讽法国贫困移民的意味，但是随着时光的流逝，而今却已经转变成为路易斯安那州的文化特色。
+- Creole: 克里奥尔人，指首批定居在美国南部的法国人和西班牙人后裔．那些祖辈来自法国上流社会的后裔们，在饮食的习惯上既保留了欧式古典餐饮文化影响，又结合西班牙，意大利和希腊，以及非洲黑奴的饮食特色于一体，创造出了最具有名字大融合性质的Creole菜式。
+- Etouffee: 指由海鲜、面粉、猪油、洋葱、大蒜、芹菜、番茄酱、咖喱粉和辣椒等成分在一起所炖成的稠糊，同样也是伴着米饭享用。如果很难形容的话，你不妨将其想成是一种“浇头”。一般有Shrimp Etouffee．
+- Gumbo: 来自南方香料杂烩汤 Gumbo，又名海鲜秋葵浓汤，每一口都可以让你感受到的温暖。如果刨根究底你会发现，它几乎就是法式马赛鱼汤 Boullabaise+非洲秋葵汤一起制作而成。秋葵的加入，会使得汤头会变得浓稠且黏黏糯糯的，配上米饭一起吃，管饱还好味。
+- Jambalaya: 说到路易斯安那的美食，必须提到 Jambalaya，一款南部“什锦饭”，这种用大米、虾、牡蛎、火腿或鸡肉烹制而成的调味香料米饭。它算的上是西班牙大锅饭 Paella 的变种。当然也许你曾听过一代歌姬邓丽君演唱过一首名为 Jambalaya 的歌曲。洛杉矶在 Jambalaya 上最有建树的要数 Little Easy 和 Cafe Creole。
+
+
 - Po-boys(or poor boy): a traditional submarine sandwich from LA. It almost always consists of meat, usually toasted beef, or fried seafood. The meat is served on baguette-like New Orleans French bread, known for its crisp crust and fluffy center. 
 - Queso: Spanish for "cheese"
 - Swamp Pop(strawberry): LA盛产草莓，所以饮料点Swamp Pop草莓味的最好！＂Sweet Ponchatoula Strawberries are the official fruit of Louisiana.＂
