@@ -34,19 +34,26 @@ USA Group Travel Projects
 - webs: https://www.steamboatnatchez.com/special-event-cruises#Christmas
 ---
 ### Dec 25 2019 AM
-#### 法国区（French Quarter）Jackson square
+#### 法国区（French Quarter）
+1. Jackson square
 - Open hour:8:00-18:00
+- Ticket:Free
 - Address: 701 Decatur St, New Orleans, LA 70116
 
-#### 法国区（French Quarter）圣路易斯教堂 St Louis Cathedral
-- open hour:8:30-4:00
-- ticket:Free
+2. 圣路易斯教堂 St Louis Cathedral
+- Open hour:8:30-4:00
+- Ticket:Free
 - Adress: 615 Pere Antoine Alley, New Orleans, LA 70116
 
-#### 法国区（French Quarter）casino
+3. French Market
+- Open hour:8:00-17:00 (may differ)
+-Address: 700-1010 Decatur St, New Orlean, LA 70116
+
+4. Casino
 - Address: 8 Canal St, New Orleans, LA 70130
 - Open hour: maybe 16:00-21:00
-#### 其他
+
+5. 其他
 Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Keyes House, Royal Pharmacy,被列入国家历史地的小酒馆Lafitte's Blacksmith,邮局，以玉米铁艺栅栏知名的Cornstalk Hotel, St Anthony's Garden, Pirate's Alley,以锻铁阳台知名的Labramche Building, Faulkner House 书店，Avart-Peretti宅邸，LeMonnier大厦，颓废的Preservation Hall (听爵士乐的最佳地点),画廊Court of Two Lions,Historic New Orleans Collection,State Supreme Court Building
 
 #### 花园区 gardon district
