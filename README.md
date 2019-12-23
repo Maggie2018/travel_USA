@@ -16,12 +16,11 @@ USA Group Travel Projects
 
 
 ### Dec 24 2019 PM
-(Suggestion:我建议咱们赶2：30 pm的steamboat Natchez，体验一下比较不一样的感觉，你们觉得呢？)
-#### steamboat Natchez 或者下午或者晚上，下午票可能便宜点$25 || >$68
+#### Steamboat Natchez 或者下午或者晚上，下午票可能便宜点$25 || >$68
 - webs: https://www.steamboatnatchez.com/special-event-cruises#Christmas
 - Address：400 Toulouse St, New Orleans, LA 70130
-- suggestion:下午争取赶到坐2：30的jazz crusize,便宜+能感受一下不一样的感觉
-- open hours: 2:30,7:00
+- Suggestion:乘坐2：30PM的jazz crusize
+- Open hours: 2:30-4:30(2hrs trip)
 #### 新奥尔良艺术博物馆（New Orleans Museum of Art, NOMA）
 - Address: 1 Collins Diboll Cir, New Orleans, LA 70124
 - Note: 大师作品：莫奈，毕加索，马提斯
@@ -30,8 +29,8 @@ USA Group Travel Projects
 - Parking: free
 #### Besthoff Sculpture Garden
 - Address: same as above
-- ticket: free
-- open hour:10 am -3 pm on Christmas Eve,closed on Christmas Day
+- Ticket: free
+- Open hour:10 am -3 pm on Christmas Eve,closed on Christmas Day
 #### 城市公园（city park）
 - Address:same as above
 - ticket:Free
