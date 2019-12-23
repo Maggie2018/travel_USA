@@ -37,16 +37,6 @@ USA Group Travel Projects
 - ticket:Free
 - Note:1854年建；青苔架篷，世界上规模最大的橡树林
 
-### Dinner: 
-晚餐：
-- option: Court of Two Sisters（Jazz Brunch Buffet, 9:00-15:00, $30）
-        
-### Dec 24 2019 Evening
-#### 篝火(suggestion:有机会可以去一下，仅此一州)
-- Address: The Christmas Eve bonfires are most commonly found in St. James Parish (county), some 30-40 miles upriver from New Orleans. As many as 100 or more bonfires may be ereted in the adjoining communities of Gramercy, Lutcher and Paulina, and more may be scattered in other locations i St. James and neighboring parishes.
-- webs: https://www.neworleans.com/event/christmas-eve-bonfires-on-the-levee/3232/
-
-
 ---
 ### Dec 25 2019 AM
 #### 法国区（French Quarter）
@@ -122,9 +112,12 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 - Average $/person: $15
 - Address: 1468 N Broad St, New Orleans, LA 70115
 - Tips: 加工好的小龙虾、虾、蟹、火鸡脖子、猪脚等，味道微辣，小龙虾里还有配菜．
-
-
-
+9. *海鲜自助Jazz Brunch Buffet*Court of Two Sisters
+- Open hour: (24th) 9:00-15:00, 17:30-22:00(may differ); (25th) 9:00-15:00, 17:30-22:00(may differ)；（26th)9:00-15:00, 17:30-22:00
+- Must try: Turtle Soup 
+- Average $/person: $40
+- Address: 613 Royal St, New Orleans, LA 70130
+- Tips: 就餐环境好，然而据说食物盛名之下其实难副...
 
 
 #### 美食术语
