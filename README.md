@@ -88,7 +88,7 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 - Average $/person: $30
 - Address: 2 Poydras St, New Orleans, LA 70112
 - Tips: 据说此处生蚝比Acme的更好，是NOLA第一．
-5.*海鲜－小龙虾*Cajun Seafood
+5. *海鲜－小龙虾*Cajun Seafood
 - Open hour: (24th) 10:30-20:30(may differ); (25th) 10:30-20:30(may differ)；（26th)10:30-20:30
 - Must try: 小龙虾，蟹腿，猪蹄，火鸡脖子 
 - Average $/person: $15
