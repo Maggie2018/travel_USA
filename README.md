@@ -16,10 +16,10 @@ USA Group Travel Projects
 
 
 ### Dec 24 2019 PM
-#### Steamboat Natchez 或者下午或者晚上，下午票可能便宜点$25 || >$68
+#### Steamboat Natchez 下午票每人$25/晚上票每人$68
 - webs: https://www.steamboatnatchez.com/special-event-cruises#Christmas
-- Address：400 Toulouse St, New Orleans, LA 70130
-- Suggestion:乘坐2：30PM的jazz crusize
+- Address: 400 Toulouse St, New Orleans, LA 70130
+- Suggestion:乘坐2:30PM的jazz crusize
 - Open hours: 2:30-4:30(2hrs trip)
 #### 新奥尔良艺术博物馆（New Orleans Museum of Art, NOMA）
 - Address: 1 Collins Diboll Cir, New Orleans, LA 70124
@@ -132,16 +132,10 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 - Etouffee: 指由海鲜、面粉、猪油、洋葱、大蒜、芹菜、番茄酱、咖喱粉和辣椒等成分在一起所炖成的稠糊，同样也是伴着米饭享用。如果很难形容的话，你不妨将其想成是一种“浇头”。一般有Shrimp Etouffee．
 - Gumbo: 来自南方香料杂烩汤 Gumbo，又名海鲜秋葵浓汤，每一口都可以让你感受到的温暖。如果刨根究底你会发现，它几乎就是法式马赛鱼汤 Boullabaise+非洲秋葵汤一起制作而成。秋葵的加入，会使得汤头会变得浓稠且黏黏糯糯的，配上米饭一起吃，管饱还好味。
 - Jambalaya: 说到路易斯安那的美食，必须提到 Jambalaya，一款南部“什锦饭”，这种用大米、虾、牡蛎、火腿或鸡肉烹制而成的调味香料米饭。它算的上是西班牙大锅饭 Paella 的变种。当然也许你曾听过一代歌姬邓丽君演唱过一首名为 Jambalaya 的歌曲。洛杉矶在 Jambalaya 上最有建树的要数 Little Easy 和 Cafe Creole。
-
-
 - Po-boys(or poor boy): a traditional submarine sandwich from LA. It almost always consists of meat, usually toasted beef, or fried seafood. The meat is served on baguette-like New Orleans French bread, known for its crisp crust and fluffy center. 
 - Queso: Spanish for "cheese"
 - Swamp Pop(strawberry): LA盛产草莓，所以饮料点Swamp Pop草莓味的最好！＂Sweet Ponchatoula Strawberries are the official fruit of Louisiana.＂
 - Tortilla: 墨西哥玉米薄饼
-
-
-
-
 
 
 #### 花园区 Gardon District
@@ -149,9 +143,6 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 - Info: 新奥尔良花园区以精美的老建筑而闻名，这里除了有众多希腊复兴式和哥特式的建筑之外，还有很多有新奥尔良特色的景观，附近还有很多博物馆可以随心逛逛，感受宁静、历史和艺术。花园区的特别之处，并不是其高雅的花园，而是独一无二的
 建筑。这里的房子，每一座都有其独特的设计理念和背景故事，你几乎很难找到两栋一模一样的，它们代表着不同的建筑风格。整个花园区种满了甜橄榄树，花开的季节，这里的空气中都是甜甜的香味。
 - 杜兰大学Tulane University undergraduate 
-
-#### Dec 25 2019 PM
-- 密西西爵士乐蒸汽观光船或者沼泽探险
 
 ---
 ### Dec 26 2019 AM
