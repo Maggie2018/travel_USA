@@ -66,9 +66,10 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 ##### 美食 Food
 1. *法餐*Cafè Du Monde(Brunch, 24号下午或者２６号早上必吃，紧邻French Market）
 - Open hour: (24th) Midnight-18:00 ; (25th) Closed；（26th)5:00-Midnight
-- Must try: Beignet, Coffee
+- Must try: Beignet, 招牌法式牛奶咖啡(Cafe au Lait)
 - Average $/person: $6 (Cash Only)
 - Address: 800 Decatur St, New Orleans, LA 70116
+- Tips: 人很多，要排队．
 2. *法餐*Li'l Dizzy's Cafe
 - Open hour: (24th) 7:00-14:00(may differ); (25th) 7:00-14:00(may differ)；（26th)7:00-14:00
 - Must try: Gumbo, 
