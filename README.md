@@ -118,6 +118,12 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 - Average $/person: $40
 - Address: 613 Royal St, New Orleans, LA 70130
 - Tips: 就餐环境好，然而据说食物盛名之下其实难副...
+10. *海鲜－小龙虾*Bevi Seafood
+- Open hour: (24th) 11:00-20:00(may differ); (25th) 11:00-20:00(may differ)；（26th)11:00-20:00
+- Must try: Crawfish 
+- Average $/person: $15
+- Address: 236 N Carrollton Ave, New Orleans, LA 70119
+- Tips: 这家店离我们住的Airbnb步行１５分钟的距离，较近．Netflix美食频道主持人专门到这里来做了节目，说明真的很出名．
 
 
 #### 美食术语
