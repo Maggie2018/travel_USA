@@ -115,7 +115,7 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 - Must try: Grilled Oysters, Crab Cakes, Crispy Fried Alligator 
 - Average $/person: $20
 - Address: 300 Bourbon St, New Orleans, LA 70130
-- Tips: 巧克力法式甜甜圈和鳄鱼丸子比较有特色，分量大，尤其是海鲜拼盘(Seafood platter, $25.99)．
+- Tips: FQ特色餐馆．Gumbo、鳄鱼肉，饮料可点swamp pop(strawberry)．
 8. *海鲜－小龙虾*Broadview Seafood
 - Open hour: (24th) 10:30-19:00(may differ); (25th) 10:30-19:00(may differ)；（26th)10:30-19:00
 - Must try: Crawfish 
@@ -152,7 +152,7 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 
 
 
-#### 花园区 gardon district
+#### 花园区 Gardon District
 - 沿Charles 路坐老式电车，从Washington路下车转到Prytania路，一直走到有罗伯特.LEE雕塑的大转盘看，有希腊复兴式，哥特式，新奥尔良特色的Lafayette Cemetery No.1 公墓，治安不好，特别是墓地周围
 - Info: 新奥尔良花园区以精美的老建筑而闻名，这里除了有众多希腊复兴式和哥特式的建筑之外，还有很多有新奥尔良特色的景观，附近还有很多博物馆可以随心逛逛，感受宁静、历史和艺术。花园区的特别之处，并不是其高雅的花园，而是独一无二的
 建筑。这里的房子，每一座都有其独特的设计理念和背景故事，你几乎很难找到两栋一模一样的，它们代表着不同的建筑风格。整个花园区种满了甜橄榄树，花开的季节，这里的空气中都是甜甜的香味。
