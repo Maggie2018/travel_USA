@@ -149,7 +149,7 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 #### 法国区（French Quarter) Historic New Orleans Collection
 - ticket: free
 - open hour: 9:30-4:30
-             Holidays observed areChristmas and Christmas Day
+             Holidays observed are Christmas and Christmas Day
 - Intro:如果只想参观一间博物馆，建议参观法国区的Historic New Orleans Collection，它是一栋老建筑，内藏美法交易的路易斯安娜购买原始凭证和早期地图，但不是时常都能看到，只有跟专门的tour到二楼展厅观看。
 #### 法国区（French Quarter）美国国家二战博物馆（The National WWII Museum）
 - Open hour: Time: 9：00-5：00
