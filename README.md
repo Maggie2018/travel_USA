@@ -16,6 +16,12 @@ USA Group Travel Projects
 
 
 ### Dec 24 2019 PM
+(Suggestion:我建议咱们赶2：30 pm的steamboat Natchez，体验一下比较不一样的感觉，你们觉得呢？)
+#### steamboat Natchez 或者下午或者晚上，下午票可能便宜点$25 || >$68
+- webs: https://www.steamboatnatchez.com/special-event-cruises#Christmas
+- Address：400 Toulouse St, New Orleans, LA 70130
+- suggestion:下午争取赶到坐2：30的jazz crusize,便宜+能感受一下不一样的感觉
+- open hours: 2:30,7:00
 #### 新奥尔良艺术博物馆（New Orleans Museum of Art, NOMA）
 - Address: 1 Collins Diboll Cir, New Orleans, LA 70124
 - Note: 大师作品：莫奈，毕加索，马提斯
@@ -36,12 +42,11 @@ USA Group Travel Projects
 - option: Court of Two Sisters（Jazz Brunch Buffet, 9:00-15:00, $30）
         
 ### Dec 24 2019 Evening
-#### 篝火
+#### 篝火(suggestion:有机会可以去一下，仅此一州)
 - Address: The Christmas Eve bonfires are most commonly found in St. James Parish (county), some 30-40 miles upriver from New Orleans. As many as 100 or more bonfires may be ereted in the adjoining communities of Gramercy, Lutcher and Paulina, and more may be scattered in other locations i St. James and neighboring parishes.
 - webs: https://www.neworleans.com/event/christmas-eve-bonfires-on-the-levee/3232/
 
-#### steamboat Natchez 或者下午或者晚上，下午票可能便宜点$25 || >$68
-- webs: https://www.steamboatnatchez.com/special-event-cruises#Christmas
+
 ---
 ### Dec 25 2019 AM
 #### 法国区（French Quarter）
