@@ -9,6 +9,12 @@ USA Group Travel Projects
 - Contact:Truedell 985-285-6467
 - Tips: Arrive anytime after 3PM; Call Truedell 30min before arrival, meet at the house with keys; Feel free to contact Truedell if need any help; Truedell can provide trip suggestions. 
 
+### Safety Tips
+- 走到拥挤的Bourbon Street务必看好钱包。我个人觉得，那里的流浪汉虽然多，但看起来不怎么暴力。建议大家待在 French Quarter 附近的游客区，一般很多外地人和家庭都会在街上走来走去，一旦看不到游客行走，马上掉头。
+- 在新奥尔良千万不要开车！就算你没喝醉，街上也有很多醉汉，大家都无视红绿灯到处横穿马路，French Quarter停车也是个噩梦。只要住的地方够方便，大多地方都能步行。
+
+
+
 ### Dec 24 2019 PM
 #### 新奥尔良艺术博物馆（New Orleans Museum of Art, NOMA）
 - Address: 1 Collins Diboll Cir, New Orleans, LA 70124
@@ -52,7 +58,7 @@ USA Group Travel Projects
 
 3. French Market
 - Open hour:8:00-17:00 (may differ)
--Address: 700-1010 Decatur St, New Orleans, LA 70116
+- Address: 700-1010 Decatur St, New Orleans, LA 70116
 
 4. Casino
 - Address: 8 Canal St, New Orleans, LA 70130
@@ -118,6 +124,7 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 
 #### 美食术语
 ＂真正被大多数美国人所接受的新奥尔良食物则是以劲辣🌶🌶🌶 闻名，然后通过洋葱、辣椒和芹菜组成三位一体，再配上大量的香料就形成了基本味型。＂
+＂新奥尔良所在的路易丝安那州是最早开始吃小龙虾的地区。后来日本从美国引进了小龙虾生产，后来中国从日本、从中国的台湾地区引进了这个品种的小龙虾，而后小龙虾才成为了中国人餐桌上的美食，尤其是夜宵，晚上呼朋引伴去喝酒，再来一锅小龙虾佐酒，爽到飞起。＂
 - Alligator: 短吻鳄（产于美国及中国）
 - Beignet: 法式甜甜圈，油炸面包圈
 - Boudin: 猪血香肠
