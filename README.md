@@ -159,7 +159,7 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
              Holidays observed are Christmas and Christmas Day
 - Intro:如果只想参观一间博物馆，建议参观法国区的Historic New Orleans Collection，它是一栋老建筑，内藏美法交易的路易斯安娜购买原始凭证和早期地图，但不是时常都能看到，只有跟专门的tour到二楼展厅观看。
 #### 法国区（French Quarter）美国国家二战博物馆（The National WWII Museum）
-- Open hour: Time: 9：00-5：00
+- Open hour: Time: 9:00-5:00
              Closed Mardi Gras Day, Thanksgiving Day, Christmas Eve, and Christmas Day.
 - Address:945 Magazine St, New Orleans, LA 70130
 - Pariking：$10/3hours
@@ -171,7 +171,7 @@ Chartres，圣菲利普路，Royal路--修道院Ursuline Convent, Beauregard-Key
 - Address:3645 LA-18, Vacherie, LA 70090
 - Open hour: 9:00-17:00, 12.25不开
 - ticket:$25+tax /人
-- open hour: 9：00am -5:00 pm（需要2 hours）
+- open hour: 9:00am -5:00 pm（需要2 hours）
 - parking：11-13$
 - webs：https://www.oakalleyplantation.org/about
 https://www.bangli.us/post/154586
